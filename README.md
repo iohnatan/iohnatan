@@ -1,4 +1,4 @@
-- «lo simple» no es fácil solo por ser simple.
+- «Lo simple» no es fácil solo por ser simple.
 - Demasiado esfuerzo conflicto con el universo.
 - Bien hecho es mejor que bien dicho.
 - El dolor es vehiculo de conciencia.
